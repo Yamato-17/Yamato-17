@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yamato-17
+- 👀 I’m interested in how the world moves to and changes into from this corona folly. 
+- 🌱 I’m currently learning Data Analyst program.
+- 💞️ I’m looking to collaborate on..., no idea just yet.
+- 📫 How to reach me? Here!
